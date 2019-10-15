@@ -1,0 +1,1 @@
+# konspekt_15102019_patterns
